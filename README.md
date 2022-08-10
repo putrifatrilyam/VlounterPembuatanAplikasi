@@ -13,3 +13,4 @@ Berikut daftar Volunter yang diterima:
 * Asep Bonowoso, [Linkedin](https://www.linkedin.com/in/asep-adhan/).
 * Numna Kutologi, [Linkedin](https://www.linkedin.com/in/nuna-adhan/).
 * Aynma potgrefius, [Linkedin](https://www.linkedin.com/in/Aynama-adhan/).
+* Kurnia, [LinkedIn](https://www.linkedin.com/in/kurnia-sari-sitanggang-75133317a/).
