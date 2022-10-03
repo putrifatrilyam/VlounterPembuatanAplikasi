@@ -14,4 +14,5 @@ Berikut daftar Volunter yang diterima:
 * Aynma potgrefius, [Linkedin](https://www.linkedin.com/in/Aynama-adhan/).
 * Kurnia, [LinkedIn](https://www.linkedin.com/in/kurnia-sari-sitanggang-75133317a/).
 * Aji Nugroho, [LinkedIn](https://www.linkedin.com/in/kurnia-sari-sitanggang-75133317a/).
+* Wahyu Adies, [LinkedIn](https://www.linkedin.com/in/wahyu-adies/).
 
